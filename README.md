@@ -3,7 +3,7 @@
 ## Its_me_Richuser
 
 <div align="center">
-  <img src=richusher.jpg>
+  <img src=unnamed.gif>
 
 ## 📢 Guide
 Click WA logo to Join Support Group 👇
